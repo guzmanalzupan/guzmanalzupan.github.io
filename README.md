@@ -1,2 +1,0 @@
-# guzmanalzupan.github.io
-test
